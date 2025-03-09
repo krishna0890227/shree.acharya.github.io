@@ -1,6 +1,6 @@
 A Good and Patience Team Player 
 
-# Research Scientist
+# Former Research Scientist
 - NCRA, University College Dublin
 
 # Education
